@@ -11,3 +11,5 @@ I just dont find bots interesting.
 Personally
 
 shout out to yungbbq though
+why is nothing changing?
+this is so stressfull

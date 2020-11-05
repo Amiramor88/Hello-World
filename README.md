@@ -9,3 +9,5 @@ Anyways, this is definitely not a bot, I really dont like bots too much personal
 AI is very interesting though. 
 I just dont find bots interesting. 
 Personally
+
+shout out to yungbbq though
